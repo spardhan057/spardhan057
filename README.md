@@ -2,7 +2,7 @@
 - 👀 I’m interested in Accounting 
 - 🌱 I’m currently working in BFL as a sales officer 
 - 💞️ I’m looking to collaborate 
-- 📫 How to reach me 
+- 📫 How to reach me , my contact number 8053047128 and my email id spardhan057@gmail.com
 - 😄 Pronouns: Hindi English Punjabi 
 - ⚡ Fun fact: I'm enjoying my work 
 
